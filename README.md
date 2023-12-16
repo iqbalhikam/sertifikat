@@ -1,1 +1,2 @@
 # sertifikat
+SERTIFIKAT PESERTA INAUGURASI 23-107_page-0001.jpg
